@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Yuva-kannan
+- 👋 Hi, I’m @Yuva Priyadharshini K
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently learning B.E CSE Cybsrr security
 - Always do what frels right in your heart 😊🩵
